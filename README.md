@@ -1,5 +1,3 @@
 # hello-world
 
-Hi. My name is Michael. I like to eat sushi and play ping-pong.
-
-I also like to play soccer.
+Hi. My name is Michael. I like to eat sushi as well as play ping-pong and soccer. I also like Ariana Grande.
