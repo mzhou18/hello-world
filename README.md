@@ -17,4 +17,8 @@ Now that I've become who I really are.
 This is, the part when I say I don't want ya,
 I'm stronger than I've been before.
 This is, the part when I break free,
-'Cuz I can't resist it no more. 
+Cause I can't resist it no more. 
+This is, the part when I say I don't want ya,
+I'm stronger than I've been before.
+This is, the part when I break free,
+Cause I can't resist it no more.
